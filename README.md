@@ -1,1 +1,1 @@
-# Proyecto_Tem-tico
+Dayana Maribel Pineda Ponce
